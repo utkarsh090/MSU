@@ -1,2 +1,1 @@
-MSU
-===
+Montana State University - Bozeman
